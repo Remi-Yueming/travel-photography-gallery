@@ -15,7 +15,7 @@ It began during my time in Singapore and gradually grew into a collection of jou
 
 ## Places
 
-🇸🇬 Singapore  
+🛫 🇸🇬 Singapore  
 🇮🇩 Bali, Indonesia  
 🇹🇭 Chiang Rai & Pattaya, Thailand  
 🇻🇳 Phu Quoc & Ho Chi Minh City, Vietnam  
